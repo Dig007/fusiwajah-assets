@@ -1,0 +1,1 @@
+# fusiwajah-assets
